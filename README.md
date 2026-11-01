@@ -7,4 +7,4 @@
 
 　　will probably make a strawpage soon...
 
-  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hvvqvjs480cxuz08mw5u083li&cover_image=true&theme=natemoo-re&background_color=ccad38&interchange=true&bar_color=ccad38&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=hvvqvjs480cxuz08mw5u083li&redirect=true)
+  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hvvqvjs480cxuz08mw5u083li&cover_image=true&theme=natemoo-re&background_color=ccad38&interchange=true&bar_color=cc0f2c&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=hvvqvjs480cxuz08mw5u083li&redirect=true)
