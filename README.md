@@ -7,7 +7,7 @@
 <img src="https://64.media.tumblr.com/416b6d02b70979dec2fab5604e1f15d9/91445faef06d6004-15/s100x200/d3136b57edd2141ecbb5f60eb2a4870ad10ff0cf.pnj">
 
 
-　　[stan or stanley](https://rentry.co/stan-ley-marsh)　　18y　　he him　　introvert　　i like weezer　　
 
-　　will probably make a strawpage soon...
-
+#### 　　[stan or stanley](https://rentry.co/stan-ley-marsh)
+  
+　　18y　　he him　　introvert　　i like weezer　　
