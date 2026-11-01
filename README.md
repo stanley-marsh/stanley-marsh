@@ -2,6 +2,8 @@
 
 <img src="https://64.media.tumblr.com/fb9762dc76537862186d989ca319141b/91445faef06d6004-7c/s100x200/2959130c6274feb00a6b93143d3ea1f75dd11f25.pnj">
 
+<img src="https://files.catbox.moe/07nuzt.gif">
+
 
 　　[stan or stanley](https://rentry.co/stan-ley-marsh)　　18y　　he him　　introvert　　i like weezer　　
 
